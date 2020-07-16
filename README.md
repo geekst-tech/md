@@ -1,6 +1,6 @@
 MDwiki
 ======
-[](https://www.youtube.com/watch?v=splc-CcIWRk)
+[yt](https://www.youtube.com/watch?v=splc-CcIWRk)
 
 [Link google.lv](https://www.google.lv/)
 
